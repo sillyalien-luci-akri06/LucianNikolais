@@ -4,33 +4,33 @@
 
 ||||||||||||||||||||||||||
 
-Name : Lucian/Vincent
+- Name : Lucian/Vincent
 
 ||||||||||||||||||||||||||
 
- Games: Ponytown, VRchat, Roblox, Minecraft
+- Games: Ponytown, VRchat, Roblox, Minecraft
  
 ||||||||||||||||||||||||||
 
- Likes: Music, Drawing/Art, Reading, Writing, Certain Animes, Cinnamon rolls
+- Likes: Music, Drawing/Art, Reading, Writing, Certain Animes, Cinnamon rolls
  
 ||||||||||||||||||||||||||
 
- Dislikes: AI Art/Anything AI, Bullys/Disrespectful & Rude people.
+- Dislikes: AI Art/Anything AI, Bullys/Disrespectful & Rude people.
  
 ||||||||||||||||||||||||||
 
- Gender: Male
+- Gender: Male
  
 ||||||||||||||||||||||||||
 
- Pronouns: He/They
+- Pronouns: He/They
  
  ||||||||||||||||||||||||||
  
- Feel free to add me on Discord or join my HH/HB Fan Roleplay & Hangout Server
+- Feel free to add me on Discord or PT if you see me!! or join my HH/HB Fan Roleplay & Hangout Server
  
  ||||||||||||||||||||||||||
  
-- ᥫ ------- ᥫ
+ ᥫ ------- ᥫ
 -->
